@@ -1,3 +1,5 @@
+A long time ago in a galaxy far, far away…
+
 It is a period of civil war. Rebel spaceships,
 striking from a hidden base, have won their
 first victory against the evil Galactic Empire.
